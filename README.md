@@ -1,4 +1,7 @@
 #zeynepyalcin0
+
+<img width="1400" height="350" alt="BANNER LİNK" src="https://github.com/user-attachments/assets/86e153c6-5273-4e73-bbdf-73da79845fee" />
+
 💫​ Hi there, I'm ZEYNEP YALÇIN 👋💫​🌱​🦉​💪​​​
 
 ​🦉 🐙 Computer Engineering Student | Tech Enthusiast | Curious Learner
